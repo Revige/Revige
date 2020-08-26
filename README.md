@@ -9,5 +9,4 @@ Here are some ideas to get you started:
 - 💬 Ask me about my Bots
 - 📫 How to reach me: Telegram @Awayer Mail:r3vige@yandex.ru
 - 😄 Pronouns: Awayer, Revige
-- ⚡ Fun fact: mac os onelove
--->
+- ⚡ Fun fact: MacOs OneLove
